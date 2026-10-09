@@ -1,1 +1,0 @@
-# studyvoca34-39
